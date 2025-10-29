@@ -50,7 +50,8 @@ Harry’s favorite spell is Expelliarmus! :sparkles: :boom:
 
 He was known as ==The Boy Who Lived==.
 
-The Triwizard Tournament took place in the 4th year, or Year⁴.
+H₂O — because even wizards need water for potion-making.
 
+The Triwizard Tournament took place in the 4th year, or Year<sup>4</sup>.
 
 
